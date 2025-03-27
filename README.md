@@ -1,1 +1,0 @@
-# Deroy_Ritche_BSIT2C_Repo
